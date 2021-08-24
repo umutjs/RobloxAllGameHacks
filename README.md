@@ -1,0 +1,1 @@
+Bu Kodu Kullanıyorsanız Kodların Ayarlarını Değiştirmeyin Emeğe Saygı Olarak
